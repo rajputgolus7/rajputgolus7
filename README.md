@@ -18,4 +18,4 @@
 - Open Source Contribution
 
 ## Connect With Me
-LinkedIn: your-link
+LinkedIn: https://www.linkedin.com/in/golu-singh-ab9276373/
